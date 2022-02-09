@@ -2,4 +2,4 @@
 
 Perkenalkan nama saya **Muhammad Arif**.\
 
-saya seorang....
+saya seorang
