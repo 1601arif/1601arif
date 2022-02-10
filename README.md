@@ -1,5 +1,5 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Muhammad Arif**.\
+Perkenalkan nama saya **Muhammad Arif**
 
 saya seorang
